@@ -1,1 +1,1 @@
-# rsschool-cv
+https://timur-nekzoo.github.io/rsschool-cv/
